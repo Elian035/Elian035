@@ -4,9 +4,9 @@ src="https://64.media.tumblr.com/edfd88ab875b2c043eb4152fa2f5355c/3a3b86cc56102f
   <p align="center">  
 <h3 align="center"><img align="center" src="https://cdn.discordapp.com/attachments/1529121717174407289/1551912849347973200/Tumblr_l_45797594662036.gif?ex=6ab3b2f8&is=6ab26178&hm=cac7ada2ef6153b4dbd17587dce3108cddfecb0c6b8e98ec2d9d47123149a1da&" height="200px" alt="a"/>
 <p align="center">
-  ${{\color{#5c0909}\texttt{︵﹒⊹ ๑ ︵Elian/Finn︵﹒⊹ ๑ ︵}}}$ 
+  ${{\color{#684943}\texttt{︵﹒⊹ ๑ ︵Elian/Finn︵﹒⊹ ๑ ︵}}}$ 
  <p align="center"> 
-   ${{\color{#5c0909}\texttt{4w5 146 sp/sx}}}$<br>
+   ${{\color{#684943}\texttt{4w5 146 sp/sx}}}$<br>
   <p align="center">
  ${{\color{#684943}\texttt{tord fictkin(iwc)/paul kinshift}}}$<br>
   <p align="center">
