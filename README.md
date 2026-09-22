@@ -18,7 +18,7 @@ ${{\color{#6e2010}\texttt{c+h freely semi afk=w2i}}}$
   ${{\color{#c3b7b4}\text{DNI ⋆·˚ ༘ *}}}$
   <p align="left">
   <pre>
-⊱ ۫ppl<12
+⊱ ۫ppl>12
 ⊱ ۫ ׅrude ppl
 ⊱ ۫ ׅtransphobics/homophobics
 ⊱ ۫ ׅweirdo(like maps,fascists,...blabla)
