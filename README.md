@@ -6,7 +6,7 @@ src="https://64.media.tumblr.com/edfd88ab875b2c043eb4152fa2f5355c/3a3b86cc56102f
 <p align="center">
   ${{\color{#6e2010}\texttt{︵﹒⊹ ๑ ︵Elian/Finn︵﹒⊹ ๑ ︵}}}$ 
  <p align="center"> 
-   ${{\color{#6e2010}\texttt{4w5 146 sp/sx}}}$<br>
+   ${{\color{#6e2010}\texttt{INFP 4w5 146 sp/sx}}}$<br>
   <p align="center">
  ${{\color{#6e2010}\texttt{tord fictionkin(iwc)/paul kinshift}}}$<br>
   <p align="center">
