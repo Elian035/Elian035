@@ -25,4 +25,16 @@ ${{\color{#6e2010}\texttt{c+h freely semi afk=w2i}}}$
   </pre>
   <p alighn="left">
 <h3 align="left"><img align="left" 
-  <img align="left" src="" height="150px" alt="y"\>
+  <img align="left" src="https://images-ext-1.discordapp.net/external/lvdPMSn4kDL0lZ4cXYFeuIEvzMcUAbCI0HrqAogzKhY/https/64.media.tumblr.com/b04930f3b72c8cda76c7000f3b7c7c67/315f02b0c6bb7acb-d5/s540x810/c2a2d9ed878a0a481967a6cee4e0e17dec1ac568.gifv?format=webp" height="150px" alt="y"\>
+ <p align="left">
+  ${{\color{#c3b7b4}\text{ABT ME}}}$
+   <pre>
+   Well tbh im a terrible person
+  im trying to be a better me 
+  sorry if i made you sad or anything just know im not mean it at all
+  im kinda shy when talk w stranger
+  Dont vent to me tbh,idk how to comfort and im always give some rather harsh advice
+  but you can ask first!ill always listen
+  im very childish,dont be suprised if im yapping abt brainrot
+  add friend me freely:DD
+   </pre>
