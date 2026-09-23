@@ -22,3 +22,7 @@ ${{\color{#6e2010}\texttt{c+h freely semi afk=w2i}}}$
 ⊱ ۫ ׅrude ppl
 ⊱ ۫ ׅtransphobics/homophobics
 ⊱ ۫ ׅweirdo(like maps,fascists,...blabla)
+  </pre>
+  <p alighn="left">
+<h3 align="left"><img align="left" 
+  <img align="left" src="" height="150px" alt="y"\>
